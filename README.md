@@ -32,3 +32,6 @@ macOS 11+
 
 ## Telegram Channel
 [github_2dust](https://t.me/github_2dust)
+
+https://canada.9878888.xyz:15912/s/default/d388edb1a8b228947def56eaaec45396
+https://www.9878888.xyz:35057/s/clashMetaProfiles/e380a3bece8de82fbe1a23df74b8d6b3
